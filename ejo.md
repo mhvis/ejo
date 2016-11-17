@@ -4,8 +4,10 @@
 
 ### Tweede helft
 
-* Carmina Burana
-* ..
+* Procession of the Nobles from Mlada (N. Rimsky-Korsakov)
+* Till Eulenspiegels lustige Streiche (R. Strauss)
+* De vuurvogel / The Firebird / L'oiseau de feu (I. Stravinsky)
+* Radetzky March (J. Strauss)
 
 ### Eerste helft
 
