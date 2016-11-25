@@ -94,6 +94,8 @@ Tekst en regie Lieven Rossignol. [video](https://youtu.be/rNHidgBBbEE) [repetiti
 * De getemde feeks (J. Wagenaar) [video](https://youtu.be/L4hYKS0WaAA) [Wiener Konzerthaus](https://youtu.be/XCTpHKqeJT8?t=11m29s)
 * Fanfare for the Common Man (Copland)
 * Finale uit Symfonie nr. 1 (L. Van Beethoven) [video](https://youtu.be/scXnZukJLpU)
+* Fragment uit ‘Romeo en Julia’ (P.I. Tsjaikovsky) (voor Het Grote Winterprobleem)
+* All You Need Is Love (J. Lennon) (voor Het Grote Winterprobleem)
 
 ### Eerste helft
 
@@ -110,3 +112,4 @@ Tekst en regie Lieven Rossignol. [video](https://youtu.be/rNHidgBBbEE) [repetiti
 * Oh, Happy Day (Edwin Hawkins, arr. Ron Antens) [video](https://youtu.be/U5rEkLIS-QA)
   * Solist: Pearl Jozefzoon, zang
 * Radetzky Mars (J. Strauss)
+* De Vlaamse Leeuw (K. Mire)
