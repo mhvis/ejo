@@ -13,16 +13,16 @@
 
 * Introductie, La Fée des Lilas + Wals uit ‘Doornroosje’ op. 66a (P.I. Tsjaikovski)
 * Introduction et rondo capriccioso (C. Saint-Saëns)
-  * Soliste: Simone Lamsma, viool
+  * Solist: Simone Lamsma, viool
   * Solist: Vilmos Csikos, viool
 * Selectie uit ‘Le Cid’, suite de ballet (J. Massenet)
 * España (E. Chabrier)
 * Tzigane (M. Ravel)
-  * Soliste: Noa Wildschut, viool
+  * Solist: Noa Wildschut, viool
   * Solist: Vilmos Csikos, viool
 * Drie dansen uit ‘El Sombrero de tres Picos’ (M. De Falla)
 * Vocalise (S. Rachmaninov)
-  * Soliste: Simone Lamsma, viool
+  * Solist: Simone Lamsma, viool
 * Slavenkoor uit ‘Nabucco’ (G. Verdi)
   * Samen met NBE, Nationaal Gemengd Jeugdkoor, Simone Lamsma en Noa Wildschut
 
@@ -32,7 +32,7 @@
 
 * The Planets - G. Holst
 * The Pillars of Creation - B. Kortekaas
-* Star Wars suite - J. Williams
+* Star Wars suite - J. Williams [finale](https://youtu.be/l5PL_RlSRqQ)
 
 ### Eerste helft
 
@@ -47,7 +47,7 @@
 
 ### Tweede helft
 
-* Symfonie nr. 2 in c ‘Auferstehungs-Symphony’ (G. Mahler)
+* Symfonie nr. 2 in c ‘Auferstehungs-Symphony’ (G. Mahler) [video](https://youtu.be/rACWfIZ-KpA)
   * I. Allegro maestoso
   * II. Andante moderato
   * III. In ruhig fliesender Bewegung
@@ -55,13 +55,17 @@
 
 ### Eerste helft + Florence
 
-* Ouverture ‘La Gazza Ladra’ (G. Rossini)
-* Three Pieces from ‘Schindler’s List’ (J. Williams)
-	 * Soliste: Lieke Daniels, viool
-* Suite uit ‘The Inn of Sixth Happiness’ (M. Arnold)
+* Ouverture ‘La Gazza Ladra’ (G. Rossini) [video](https://youtu.be/ZFWoNX6Tjl4)
+* Three Pieces from ‘Schindler’s List’ (J. Williams) [video](https://youtu.be/IBVdwCNbEM0)
+  * Solist: Lieke Daniels, viool
+* Suite uit ‘The Inn of Sixth Happiness’ (M. Arnold) [video](https://youtu.be/djZOsGqHVbs)
 * Adagietto uit Symfonie nr. 5 (G. Mahler)
-* Symphonic Dances from West Side Story (L. Bernstein)
-* Bisnummer: Colonel Bogey March (M. Arnold)
+* Symphonic Dances from West Side Story (L. Bernstein) [video](https://youtu.be/T6ceRI3TrHs)
+* Somewhere over the Rainbow (H. Arlen)
+  * Solist: Nandi van Beurden, zang
+* Skyfall (A. Adkins/P. Epworth) [video](https://youtu.be/29HIjD8l7ww)
+  * Solist: Nandi van Beurden, zang
+* Colonel Bogey March (bisnummer, M. Arnold)
 
 ## 2013-2014
 
@@ -83,14 +87,26 @@
 
 ### Tweede helft + Wenen
 
-* Sheherazade (N. Rimsky-Korsakov)
-* De getemde feeks (J. Wagenaar)
+Het Grote Winterprobleem met Steve Geerts, Kevin Bellemans, Loek Beernink.
+Tekst en regie Lieven Rossignol. [video](https://youtu.be/rNHidgBBbEE) [repetitie](https://youtu.be/y5en3nF_Yzo)
+
+* Sheherazade (N. Rimsky-Korsakov) [video](https://youtu.be/B-lB349xWQU) [video](https://youtu.be/1M-fKwBtU3Q) [video](https://youtu.be/L4hYKS0WaAA)
+* De getemde feeks (J. Wagenaar) [video](https://youtu.be/L4hYKS0WaAA) [Wiener Konzerthaus](https://youtu.be/XCTpHKqeJT8?t=11m29s)
 * Fanfare for the Common Man (Copland)
+* Finale uit Symfonie nr. 1 (L. Van Beethoven) [video](https://youtu.be/scXnZukJLpU)
 
 ### Eerste helft
 
 * Walkürenritt (R. Wagner)
 * Gedicht voor een vreemdeling (L. Crols)
-* Concierto de Aranjuez (J. Rodrigo)
-* Schilderijententoonstelling (M. Moussorgski)
+* Concierto de Aranjuez (J. Rodrigo) [deel 2](https://youtu.be/aUMgPHWae8g)
+  * Solist: Erik Groenestein, harp
+* Schilderijententoonstelling (M. Moussorgski) [Baba Yaga, Great Gate of Kiev](https://youtu.be/-PfT0np4YgA)
 * Hongaarse Dans nr. 6 (J. Brahms)
+* Habanera uit 'Carmen' (G. Bizet, arr. Ron Antens) [video](https://youtu.be/BGlbEsxdZJg)
+  * Solist: Pearl Jozefzoon, zang
+* I Believe I Can Fly (R. Kelly, arr. Ron Antens) [video](https://youtu.be/1im6v86yk28)
+  * Solist: Pearl Jozefzoon, zang
+* Oh, Happy Day (Edwin Hawkins, arr. Ron Antens) [video](https://youtu.be/U5rEkLIS-QA)
+  * Solist: Pearl Jozefzoon, zang
+* Radetzky Mars (J. Strauss)
