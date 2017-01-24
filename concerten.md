@@ -2,6 +2,15 @@
 
 (Lijst is nog incompleet)
 
+# Zondag 15 januari 2016
+DeSingel Antwerpen en Rabboenizaal Hoogstraten. Nieuwjaarsconcerten met oude programma met Vilmos Csikos op viool.
+
+# Zondag 8 januari 2016
+Aula universiteit Tilburg. Nieuwjaarsconcert met oude programma, met Judith de Haan op viool, Pim en Alexander zang (de Parelvissers).
+
+## Vrijdag 30 december 2016
+Provinciaal Vormingscentrum Malle, try-out concert met Judith de Haan op viool, Pim en Alexander zang.
+
 ## Zaterdag 19 november 2016
 Concertzaal Tilburg, 'Ten Dans', met CD-opname.
 
@@ -24,7 +33,7 @@ Rabboenizaal, Instituut Spijker, Hoogstraten.
 Toegift: Hongaarse dans nr. 5 - J. Brahms
 
 ## Zondag 10 januari 2016, 11.00u
-DeSingel Antwerpen
+DeSingel, Antwerpen.
 
 1. Vlaamse Leeuw
 2. Hongaarse Mars - Berlioz
