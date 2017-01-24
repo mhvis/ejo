@@ -2,10 +2,10 @@
 
 (Lijst is nog incompleet)
 
-# Zondag 15 januari 2016
+## Zondag 15 januari 2016
 DeSingel Antwerpen en Rabboenizaal Hoogstraten. Nieuwjaarsconcerten met oude programma met Vilmos Csikos op viool.
 
-# Zondag 8 januari 2016
+## Zondag 8 januari 2016
 Aula universiteit Tilburg. Nieuwjaarsconcert met oude programma, met Judith de Haan op viool, Pim en Alexander zang (de Parelvissers).
 
 ## Vrijdag 30 december 2016
