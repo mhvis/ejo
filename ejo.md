@@ -8,6 +8,9 @@
 * Till Eulenspiegels lustige Streiche (R. Strauss)
 * De vuurvogel / The Firebird / L'oiseau de feu (I. Stravinsky)
 * Radetzky March (J. Strauss)
+* Vlaamse Leeuw
+* Duet uit 'De Parelvissers' (G. Bizet)
+  * Solisten: Pim van Drunen en Alexander de Jong (zang)
 
 ### Eerste helft
 
@@ -15,11 +18,13 @@
 * Introduction et rondo capriccioso (C. Saint-Saëns)
   * Solist: Simone Lamsma, viool
   * Solist: Vilmos Csikos, viool
+  * Solist: Judith de Haas, viool
 * Selectie uit ‘Le Cid’, suite de ballet (J. Massenet)
 * España (E. Chabrier)
 * Tzigane (M. Ravel)
   * Solist: Noa Wildschut, viool
   * Solist: Vilmos Csikos, viool
+  * Solist: Judith de Haas, viool
 * Drie dansen uit ‘El Sombrero de tres Picos’ (M. De Falla)
 * Vocalise (S. Rachmaninov)
   * Solist: Simone Lamsma, viool
