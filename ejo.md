@@ -43,9 +43,12 @@
 
 * Polovtsiaanse dansen - A. Borodin
 * Pianoconcerto nr. 1 - F. Liszt
+  * Solist: Aidan Mikdad, piano
 * Hongaarse Mars 'Rakoczy' - H. Berlioz
 * Korte solowerkjes voor cimbalom en orkest - G. Lincan
+  * Solist: Giani Lincan, cimbalom
 * Hary Janos Suite - Z. Kodaly
+  * Solist: Giani Lincan, cimbalom
 * Hongaarse dans nr. 5 - J. Brahms
 
 ## 2014-2015
