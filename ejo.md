@@ -1,5 +1,27 @@
 # EJO repertoire
 
+## 2017-2018
+
+### Tweede helft
+
+* Mahler 5
+* ...
+
+### Eerste helft
+
+Thema: A Night @ the Opera
+
+* Courtly Dances uit ‘Gloriana’ (B. Britten)
+* Fantasia di Concerto ‘Rigoletto’ voor klarinet en orkest (G. Verdi, orchestratie Jasper Charlet)
+  * Solist: Jeroen Vrancken, klarinet
+* Danse Bacchanale uit ‘Samson en Delilah’ (C. Saint-Saëns)
+* Ouverture tot ‘Candide’ (L. Bernstein)
+* Introductie, thema en variaties voor klarinet en orkest (G. Rossini, orchestratie Jasper Charlet)
+  * Solist: Jeroen Vrancken, klarinet
+* Porgy en Bess, a symphonic picture (G. Gershwin, arr. Russell Bennett)
+* Suite uit ‘The Phantom of the Opera’ (A. Webber, arr. Jasper Charlet)
+* De kleur van de wolken (D. Seynhaeve) wereldpremière
+
 ## 2016-2017
 
 ### Tweede helft
