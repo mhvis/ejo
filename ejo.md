@@ -4,8 +4,12 @@
 
 ### Tweede helft
 
-* Mahler 5
-* ...
+* Symphony No.5 (Mahler, Gustav)
+* Hänsel und Gretel (Humperdinck, Engelbert)
+* Kikimora, Op.63 (Lyadov, Anatoly)
+* The Enchanted Lake, Op.62 (Lyadov, Anatoly)
+* Baba Yaga, Op.56 (Lyadov, Anatoly)
+* Onomastique (Mies de Chamaer)
 
 ### Eerste helft
 
